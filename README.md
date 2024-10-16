@@ -1,2 +1,2 @@
-- 👋 Hi, I’m CHem Emo
+👋 Hi, I’m Chen Emo
 
